@@ -155,3 +155,125 @@ Mostafa和Yaffa，我们六岁的女儿，由于容易发烧，
 |fever|a high body temperature|发烧|
 
 ##### paragraph 7
+
+然后，在十一月十五日，我坐在学校的三楼，想要喝一点茶水，
+
+然后，我听见了一声巨响伴随着哀嚎。
+
+一种我们称作为香烟炸弹的炸弹落在了外面。
+
+人们想要用沙来扑灭火焰。
+
+|words|meaning|Chinese|
+|---|---|---|
+|blast|an explosion|爆炸|
+
+##### paragraph 8
+
+仅仅几分钟，又一个香烟站但在我们面前的天空中爆炸了，
+
+喷出了一阵白色的烟雾。
+
+我们咳嗽着跑进室内，关闭门窗。
+
+Maram将一件湿布料扯开，
+
+用来让我们捂住自己的口鼻，
+
+试着去呼吸。
+
+|words|meaning|Chinese|
+|---|---|---|
+|spewing|to flow out in a large amount|喷出|
+
+##### paragraph 9
+
+那一晚，我们的耳边不断闪过爆炸声和坦克的轰鸣声，
+
+使我难以入眠。
+
+在那几天里，我我的喉咙里面充满气体，我得了腹泻。
+
+我找不到一处干净的厕所。
+
+这里没有水来让我清洗自己。
+
+我感到恶心，想要呕吐。
+
+|words|meaning|Chinese|
+|---|---|---|
+|diarrhoea|a condition in which the body has too much water in its solid waste|腹泻|
+|vomit|to bring food from the stomach back out through the mouth|呕吐|
+
+##### paragraph 10
+
+在十一月十七日，我生日的那天，我给我的家人们开了一个玩笑，
+
+我们会一起享受片刻的宁静。
+
+但当那天到来的时候，
+
+我感到了一种尴尬。
+
+我问我的妈妈，
+
+我的蛋糕在哪儿啊？
+
+她说，她会亲自为我下厨，
+
+当我们再次返回已经被摧毁的家园的时候，
+
+会有那一天的。
+
+##### paragraph 11
+
+十一月十八日，以色列人的坦克摧毁了另一所学校的两个教师，
+
+Maram的祖父母和她的表亲们就在那个教室里。
+
+我的小舅子Ahmad，
+
+了解到有几个他老婆的亲人已经离开了世间。
+
+我们的服务渴望我们不要离开避难所。
+
+然而，当我们听见这些消息的时候，
+
+我们假装回到了卧室，然而，实际上，我们去寻找我们的朋友们了。
+
+|words|meaning|Chinese|
+|---|---|---|
+|wreck|to destroy something completely|摧毁|
+
+##### paragraph 12
+
+在前往学校的那条满是灰尘的道路上，
+
+令人心碎的事情被我们撞击了。
+
+人们带着气罐、床垫、毯子和其他的东西试着逃离。
+
+一群驴和马流着先学，一匹马的尾巴几乎要断了。
+
+当我们看见一个年轻人试着去给它喝水解渴的时候，
+
+水滴慢慢地从它脖子上的洞里流出来。
+
+他问我们有没有刀，
+
+用来结束它的痛苦。
+
+|words|meaning|Chinese|
+|---|---|---|
+|cannisters|a container for holding something|罐子|
+|matteresses|a large, soft object that you sleep on|床垫|
+|blankets|a large piece of cloth used for warmth|毯子|
+|detached|not connected|分离的|
+|quench|to stop a fire from burning|扑灭，解渴|
+|dribble|to flow slowly|滴落|
+|neck|the part of the body that connects the head to the rest of the body|脖子|
+|misery|a state of great suffering|痛苦|
+
+##### paragraph 13
+
+
