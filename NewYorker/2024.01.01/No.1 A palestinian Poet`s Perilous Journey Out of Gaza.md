@@ -276,4 +276,103 @@ Maram的祖父母和她的表亲们就在那个教室里。
 
 ##### paragraph 13
 
+|words|meaning|Chinese|
+|---|---|---|
+|relieved|feeling happy because something bad has ended or didn`t happen||
+|pleading|a strong, emotional request for something||
 
+如释重负，我们终于找到了Maram在里面的祖父母，
+
+坐在地板上。
+
+随着她的叔叔们收拾着他们的行李，
+
+他们中的有些人谈论起逃去南方。
+
+Maram的祖父母恳求那些人不要离开。
+
+##### paragraph 14
+
+|words|meaning|Chinese|
+|---|---|---|
+|overcast|when the sky is full of clouds and its grey||
+
+下一个早晨，在阴沉的天空下的五点多，我渐渐醒来。
+
+一场风暴正在靠近。
+
+当每个人都睡着的时候，
+
+我用一个打开的水桶装满了雨水，
+
+清洗自己，
+
+祈祷着黎明。
+
+然后，大约凌晨六点半，
+
+Maram的叔叔Nader来到我们的房间。
+
+他正准备着和他的兄弟们逃去南方。
+
+如果有任何人想要加入我们，
+
+我们会在医院的门口集合。
+
+他说。
+
+##### paragraph 15
+
+这次，当我问Maram想不想走，她回答道当然，我们的包裹都准备好了，她告诉我。
+
+##### paragraph 16
+
+|words|meaning|Chinese|
+|---|---|---|
+|squat|to lower your body by bending your knees as if you were going to sit but staying on the balls of your feet||
+
+Maram告诉她的父母我们的决定。
+
+当她拥抱他们的时候，他们哭在了一起。
+
+然后我们一起去到三楼，
+
+我的父母正坐在床垫上同我的两个妹妹和他们的丈夫喝着早晨的咖啡。
+
+我蹲下，用低沉的声音告诉我的父母我们要试着离开加沙。
+
+##### paragraph 17
+
+|words|meaning|Chinese|
+|---|---|---|
+|pale|skin that is very light in color, or lacking color due to sickness or emotion||
+|sibling|brothers and sisters||
+|unfairness|a sense of not fair||
+
+我母亲的脸色变得苍白。
+
+她看着我的孩子，泪珠从她的眼中滚落出来。
+
+我不想要拥抱任何人，因为我还不愿意相信我就要离开他们。
+
+我亲吻了我的父母，我的手被兄弟姐妹们紧握着，
+
+我是唯一一个要踏足这段旅程的人。
+
+现在我感到的不是自责而是一种不公平。
+
+为什么我能离开而他们不能？
+
+我们足够幸运，因为Mostafa出生在美国。
+
+但这就意味着他们就不是人类了吗？他们就不值得被保护？
+
+他们的孩子也应该被如此对待吗？
+
+我想了想我们怎么走，什么时候走，我可能不能和他们通电话了，
+
+甚至有可能我连他们是死是活都会搞不清。
+
+我们现在走的每一步都会使得我们离他们更远。
+
+##### paragraph 18
